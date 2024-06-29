@@ -1,0 +1,6 @@
+# Diamomd picture :
+
+# Solution :
+
+
+    
